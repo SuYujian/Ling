@@ -1,2 +1,4 @@
 # Ling
-first one
+WTF!
+Nothing to say!
+
